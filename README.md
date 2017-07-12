@@ -1,3 +1,1 @@
-# stranzeh
-the place to be
-Follow Twitch.tv/tehstranzeh
+Dont forget to follow! twitch.tv/tehstranzeh
